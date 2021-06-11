@@ -14,3 +14,6 @@ Beatriz Kül Rezende - RM85607
 Glaydson do Nascimento Marques – RM85100
 
 Murilo Salvador Bagodi - RM83436
+
+Pedro Gabriel da Costa Vieira Oliveira – RM85400
+
